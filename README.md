@@ -1,0 +1,2 @@
+# premium-gilt-dial-001-gilt-lacquered-dial-finishin
+heritage-clock-dials professionals waste hours on spending hours building a system before you can actually use it. This fixes that.  Pre-built databases, views, and formula fields — ready to duplicate and use. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Gilt &amp; Lacquered Dial Finishing Sche
